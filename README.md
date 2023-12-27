@@ -1,2 +1,2 @@
-HunterGamingGameStudio is an indie game team/studio created by Hunter [BLANK].
+HunterGamingGameStudio is an indie game team/studio created by Hunter Anynomus.
 
